@@ -1,4 +1,4 @@
-### olaaa 💚
+### Olá! ✦
 
 *Meu nome é Vitória*
 - Estou estudando na Alura
